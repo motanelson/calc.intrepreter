@@ -1,1 +1,1 @@
-source of find like function to user define function
+windows 95 ansy system drive to windows 95
